@@ -1,0 +1,1 @@
+# sqd-init-afrdsss---template-evm
